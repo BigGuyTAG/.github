@@ -18,7 +18,9 @@ In 2022, these ambitions intensified, resulting in more aggressive strategies an
 
 ### 3.1 Perceived Threat to Authority
 
-Alpha males, defined by above-average penile lengths (exceeding 7 inches), are perceived as natural leaders with significant influence over other males. Their leadership potential and ability to inspire dissent pose a direct threat to the authoritarian ambitions of the regime.
+Alpha males, defined by above-average penile lengths (exceeding 6 inches), are perceived as natural leaders with significant influence over other males. Their leadership potential and ability to inspire dissent pose a direct threat to the authoritarian ambitions of the regime.
+
+Males exceeding 7 inches in penile length are considered a significant threat to the planned authoritarian regime and must be addressed.
 
 ### 3.2 Symbolic Suppression
 
