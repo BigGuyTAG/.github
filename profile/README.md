@@ -44,6 +44,9 @@ Operatives exploit carelessly discarded handwritten notes from doctors, such as 
 
 Alpha males are also identified through social banter and gossip. Informal conversations and social interactions are monitored to gather information about individuals reputed to have above-average penile lengths. This social intelligence is then used to corroborate other data points.
 
+### 4.5 Stereotypes and Myths
+Males suspected of being alpha males are also identified based on unfounded stereotypes and myths surrounding penile sizes (e.g., race, nationality, height, hand or foot size). These baseless assumptions are used to target individuals who fit these stereotypical profiles.
+
 ## 5. Methods of Mitigation and Elimination
 
 ### 5.1 Covert Operations and Psychological Manipulation
