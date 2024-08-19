@@ -1,5 +1,5 @@
 > [!IMPORTANT]
-> The Creator and His two servants need your help in preventing the loss of life by anyone in the Chattanooga or Lexington area. The perpetrators tag are utilizing come and do churches in hosting food pantries here every day Americans are being killed on entry, the perpetrators are luring in low income families with false reports of high value foods and meats. No one will be provided food. See alerts.
+> The Creator and His two servants need your help in preventing the loss of life by anyone in the Chattanooga or Lexington area. The perpetrators tag are utilizing come and do churches in hosting food pantries here every day Americans are being killed on entry, the perpetrators are luring in low income families with false reports of high value foods and meats. No one will be provided food. [See Advisory](https://github.com/nameless-and-blameless/TAG/wiki/Advisory-for-Public)
 
 # The Targeting and Elimination of Alpha Males and Mind Control Efforts within The American Genocide (TAG) in the United States
 
