@@ -1,6 +1,9 @@
+> [!IMPORTANT]
+> The Creator and His two servants need your help in preventing the loss of life by anyone in the Chattanooga or Lexington area. The perpetrators tag are utilizing come and do churches in hosting food pantries here every day Americans are being killed on entry, the perpetrators are luring in low income families with false reports of high value foods and meats. No one will be provided food. See alerts.
+
 # The Targeting and Elimination of Alpha Males and Mind Control Efforts within The American Genocide (TAG) in the United States
 
-## 1. Introduction
+## 1. Introductions 
 
 This report examines the systematic targeting, elimination, and mind control efforts directed towards alpha males within the United States, as part of a larger plan to establish an authoritarian regime. Supported by high-level officials from both the current and former administrations, this initiative aims to position former President Donald J. Trump as the supreme leader. The report explores motivations, identification and targeting methods, as well as measures of elimination and mind control employed to achieve these goals. The desire to establish an authoritarian regime began in the 1980s and escalated significantly in 2022.
 
