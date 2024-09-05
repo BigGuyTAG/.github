@@ -9,7 +9,7 @@ This GitHub organization (page) is overseen by the Creator's two servants as par
 Please explore the [TAG Wiki](https://github.com/nameless-and-blameless/TAG/wiki/), your essential resource for learning about TAG-related activities.
 
 - [TAG's Targeting of Alpha Males](https://github.com/nameless-and-blameless/TAG/wiki/Targeting-Alpha-Males)
-- ["24-7" Brand Cigarettes Used as Forced Sterilization Tool Against Males](https://github.com/nameless-and-blameless/TAG/wiki/Cigarettes)
+- ["24-7", "This", and "Time" Brand Cigarettes Used as Forced Sterilization Tool on Males](https://github.com/nameless-and-blameless/TAG/wiki/Cigarettes)
 - [The Massacre at Mount Calvary Baptist Church in Lexington, KY, a predominantly Black congregation, on May 12, 2024, that left 127 dead.](https://github.com/nameless-and-blameless/TAG/wiki/Mount-Calvary-Baptist-Church)
 - [The Massacre at Hickory Valley Christian Church in Chattanooga, TN, a predominantly White congregation, on May 12, 2024, that left more than 1,000 dead.](https://github.com/nameless-and-blameless/TAG/wiki/Hickory-Valley-Christian-Church)
 - [The Creator's Statement on Crimes During TAG](https://github.com/nameless-and-blameless/TAG/wiki/Statement-on-Crimes)
