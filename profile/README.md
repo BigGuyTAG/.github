@@ -1,10 +1,10 @@
 # **Welcome to BigGuyTAG**
 
-Welcome to the BigGuyTAG GitHub organization, an exclusive space for American males with above-average penile lengths who are being identified, targeted, and eliminated in TAG-related acts of violence.
+Welcome to BigGuyTAG organization, an exclusive space for American males with above-average penile lengths who are being identified, targeted, and eliminated in TAG-related acts of violence.
 
 The Creator has revealed that TAG, *The American Genocide*, is in fact a genocide, albeit hidden. Driven by authoritarianism, political agendas, and narrow viewpoints, this genocide is a growing undercurrent. Ending this atrocity requires direct intervention from Him. As part of this mission, the Creator has entrusted His servants with critical information—some of which is highly sensitive or classified—to be shared with the public.
 
-This GitHub organization (page) is overseen by the Creator's two servants as part of the "Creator's Special Mission to Protect Life on Earth." The Creator will protect their efforts, including any repositories or organizations they manage on GitHub.
+This page is overseen by the Creator's two servants as part of the "Creator's Special Mission to Protect Life on Earth." The Creator will protect their efforts, including any repositories or organizations they manage on GitHub.
 
 Please explore the [TAG Wiki](https://github.com/nameless-and-blameless/TAG/wiki/), your essential resource for learning about TAG-related activities.
 
