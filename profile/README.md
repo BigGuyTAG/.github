@@ -1,6 +1,6 @@
 # **Welcome to BigGuyTAG**
 
-Welcome to BigGuyTAG organization, an exclusive space for American males with above-average penile lengths who are being identified, targeted, and eliminated in TAG-related acts of violence.
+Welcome to BigGuyTAG, an exclusive space for American males with above-average penile lengths who are being identified, targeted, and eliminated in TAG-related acts of violence.
 
 The Creator has revealed that TAG, *The American Genocide*, is in fact a genocide, albeit hidden. Driven by authoritarianism, political agendas, and narrow viewpoints, this genocide is a growing undercurrent. Ending this atrocity requires direct intervention from Him. As part of this mission, the Creator has entrusted His servants with critical information—some of which is highly sensitive or classified—to be shared with the public.
 
